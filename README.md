@@ -3,7 +3,7 @@
 rus/self taught eng, so take care.
 c+h and interactions are welcome. it's okay to sit next to me even if we haven't talked 
 
-I don't like describing my interests outside of a dialogue and believe in chance encounters, so ask me personally about anything else
+I don't like describing my interests outside of a dialogue and believe in chance encounters, so ask me personally about anything else (ok, I'm lazy, I'll make the lists later)
 
 **Dni:**
 antis, basic criteria, systems, 16- on any server
