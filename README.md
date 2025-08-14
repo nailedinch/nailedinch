@@ -5,14 +5,25 @@
 rus/self taught eng, so take care.
 c+h and interactions are welcome. it's okay to sit next to me even if we haven't talked 
 
-I don't like describing my interests outside of a dialogue and believe in chance encounters, so ask me personally about anything else (ok, I'm lazy, I'll make the lists later)
+I don't like describing my interests outside of a dialogue much and believe in chance encounters, so ask me personally about anything else (i like answering questions and asking them!!)
 
-I can't always view all your cards and info profiles due to their unavailability in my country. My vpn has been working like shit lately, so if I come to you, but I'm on your dni or anything else, gently purr at me, I'm not doing this on purpose
+**current fandoms:**
+disco elysium, idv, deltarune, trigun, postal, fear and hunger, dmc, breaking bad...
+
+[movies](https://boxd.it/81CFL)
+
+cute space for a spotify link
+
+I'm not very active in anything right now, so it's just to convey my tastes (not to mention great plans). I still wouldn't mind discussing or poking around for something new.
+likely, this part will be updated frequently
+
+
+
+*I can't always view your cards due to their unavailability in my country. My vpn has been working like shit lately, so if I come to you, but I'm on your dni or something, gently purr at me, I'm not doing this on purpose.*
+I subscribe on you either if you are my friend, I liked you from afar (your profile is now in my cool rocks collection), or to view your links later
 
 **Dni:**
-basic, antis, rps, systems or under 15
-
-I like all humans and inhumans, but I'm not a fan of using neopronouns, feeling silly doing so. I don't know many tontags, but you can tell and teach me which ones would help you
+basic, antis, rps, systems, under 15
 
 I hide freely and don't care being hided, but know that my invisible ass can land on you at any moment
 
