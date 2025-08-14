@@ -14,7 +14,7 @@ I subscribe on people randomly, mostly collecting their profiles like cool rocks
 I don't like describing my interests outside of a dialogue much and believe in chance encounters, so you'd better ask me personally if we have something else in common
 
 **current fandoms:**
-disco elysium, idv, deltarune, trigun, postal, fear and hunger, dmc, breaking bad...
+disco elysium, idv, deltarune, trigun, postal, fear and hunger, dmc, breaking bad... not to mention great plans and unfinished ones
 
 [movies](https://boxd.it/81CFL); cute space for a spotify link
 
@@ -24,7 +24,9 @@ basic, antis, rp, systems, neopronouns users with no alt normative/-ish one, und
 
 I hide freely and don't care being hided, but know that my invisible ass can land on you at any moment
 
-!(https://64.media.tumblr.com/97d253a485fcef4706e21d1800e08221/79a6652a6d7925e6-c3/s100x200/f8b43eee8e87a7544215c519238d32e8f7c7b7dc.gifv)
+<p align="center">
+<img src="https://64.media.tumblr.com/97d253a485fcef4706e21d1800e08221/79a6652a6d7925e6-c3/s100x200/f8b43eee8e87a7544215c519238d32e8f7c7b7dc.gifv"/>
+</p>
  
 tg: @nailedinch (or @sssybau)            
 tt: @nailedinch                          
