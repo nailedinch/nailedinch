@@ -1,3 +1,5 @@
+![Visitor Count](https://profile-counter.glitch.me/{nailedinch}/count.svg)
+
 ***Larcis, 17, [any prns](https://pronouns.cc/@hyperlinkblocked)***
 
 rus/self taught eng, so take care.
