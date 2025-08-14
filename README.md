@@ -6,7 +6,7 @@ c+h and interactions are welcome. it's okay to sit next to me even if we haven't
 I don't like describing my interests outside of a dialogue and believe in chance encounters, so ask me personally about anything else (ok, I'm lazy, I'll make the lists later)
 
 **Dni:**
-antis, rps, basic criteria, systems or under 15 (with some exceptions)
+basic, antis, rps, systems or under 15
 
 I like all humans and inhumans, but I'm not a fan of using neopronouns, feeling silly doing so. I don't know much tontags, but you can tell and teach me which ones would help you
 
