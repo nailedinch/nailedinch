@@ -1,4 +1,4 @@
-![Visitor Count](https://profile-counter.glitch.me/{nailedinch}/count.svg)
+![](https://komarev.com/ghpvc/?username=nailedinch)
 
 ***Larcis, 17, [any prns](https://pronouns.cc/@hyperlinkblocked)***
 
