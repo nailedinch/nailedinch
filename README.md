@@ -18,6 +18,8 @@ disco elysium, idv, deltarune, trigun, postal, fear and hunger, dmc, breaking ba
 
 [movies](https://boxd.it/81CFL); cute space for a spotify link
 
+I'm into all kinds of doomed toxic ~yaoi~ things, blood and meat, but only in terms of fiction. I love you, all humans and inhumans, and have nothing against the differences, but if you're seeing my manner as arrogant or else, then uh bye
+
 
 **Dni:**
 basic, antis, rp, systems, neopronouns users with no alt normative/-ish one, under 16
