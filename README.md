@@ -5,6 +5,8 @@ c+h and interactions are welcome. it's okay to sit next to me even if we haven't
 
 I don't like describing my interests outside of a dialogue and believe in chance encounters, so ask me personally about anything else (ok, I'm lazy, I'll make the lists later)
 
+I can't always view all your cards and info profiles due to their unavailability in my country. My vpn has been working like shit lately, so if I come to you, but I'm on your dni or anything else, gently purr at me, I'm not doing this on purpose.
+
 **Dni:**
 basic, antis, rps, systems or under 15
 
