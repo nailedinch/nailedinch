@@ -5,6 +5,9 @@
 rus/self taught eng.
 c+h and interactions are welcome. it's okay to sit next to me even if we haven't talked 
 
+![tumblr_8d3248be64c54838a36ed0913669d623_5726ae61_400](https://github.com/user-attachments/assets/8edafce4-18e7-4a70-9c72-e51b608661ec)
+
+
 I can't always view your cards due to their unavailability in my country. My vpn has been working like shit lately, so if I come to you, but I'm on your dni or something, gently purr at me, I'm not doing this on purpose.
 I subscribe on people randomly, mostly collecting their profiles like cool rocks, so don't mind me
 
@@ -21,7 +24,7 @@ basic, antis, rp, systems, neopronouns users with no alt normative/-ish one, und
 
 I hide freely and don't care being hided, but know that my invisible ass can land on you at any moment
 
- ![](https://64.media.tumblr.com/97d253a485fcef4706e21d1800e08221/79a6652a6d7925e6-c3/s100x200/f8b43eee8e87a7544215c519238d32e8f7c7b7dc.gifv) 
+!(https://64.media.tumblr.com/97d253a485fcef4706e21d1800e08221/79a6652a6d7925e6-c3/s100x200/f8b43eee8e87a7544215c519238d32e8f7c7b7dc.gifv)
  
 tg: @nailedinch (or @sssybau)            
 tt: @nailedinch                          
