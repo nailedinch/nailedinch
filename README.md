@@ -8,11 +8,11 @@ c+h and interactions are welcome. it's okay to sit next to me even if we haven't
 ![tumblr_8d3248be64c54838a36ed0913669d623_5726ae61_400](https://github.com/user-attachments/assets/8edafce4-18e7-4a70-9c72-e51b608661ec)
 
 
-I can't always view your cards due to their unavailability in my country. My vpn has been working like shit lately, so if I come to you, but I'm on your dni or something, gently purr at me, I'm not doing this on purpose.
+I can't always view your cards due to their unavailability in my country. My vpn has been working like shit lately, so if I come to you, but I'm on your dni or something, gently purr at me, I'm not doing this on purpose.  
 I subscribe on people randomly, mostly collecting their profiles like cool rocks, so don't mind me
 
-I don't like describing my interests outside of a dialogue much and believe in chance encounters, so you'd better ask me personally if we have something else in common.
-Most of them are typology, old games and movies. Less often I read or draw.
+I don't like describing my interests outside of a dialogue much and believe in chance encounters, so you'd better ask me personally if we have something else in common  
+Most of them are typology, old games and movies. Less often I read or draw
 
 **current fandoms:**
 disco elysium, idv, deltarune, trigun, postal, fear and hunger, dmc, breaking bad... not to mention great plans and unfinished ones
