@@ -12,7 +12,7 @@ I can't always view your cards due to their unavailability in my country. My vpn
 I subscribe on people randomly, mostly collecting their profiles like cool rocks, so don't mind me
 
 I don't like describing my interests outside of a dialogue much and believe in chance encounters, so you'd better ask me personally if we have something else in common (don't (or do) worry though, most likely I'll interrogate you myself if we chat)  
-Most of them are typology, old games and movies. Less often I draw, sometimes make an intelligent look by watching or reading super smart niche things on random themes 
+Most of them are typology, old games and movies. Less often I draw or make an intelligent look by watching or reading super smart niche things on random themes. I'm kind of a talker *and* listener who likes people with special or weird interests, so come say hiii 
 
 **current fandoms:**
 disco elysium, idv, deltarune, trigun, postal, fear and hunger, dmc, breaking bad... not to mention great plans and unfinished ones
