@@ -38,4 +38,4 @@ I hide freely and don't care being hided, but know that my invisible ass can lan
 tg: @nailedinch (or @sssybau)            
 tt: @nailedinch                          
 twt: @nailedinch                         
-dc (i don't use it rn cuz banned in russia‪‪❤︎‬): whitecocoaa
+ds (i don't use it rn cuz banned in russia‪‪❤︎‬): whitecocoaa
