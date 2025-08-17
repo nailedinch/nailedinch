@@ -1,5 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=nailedinch)
 
+![IMG_20250818_035247](https://github.com/user-attachments/assets/dce276ad-c08e-4c32-937e-02adc043516a)
+
+
 ***Larcis, 17, [any prns](https://pronouns.cc/@hyperlinkblocked)***
 
 rus/self taught eng.
