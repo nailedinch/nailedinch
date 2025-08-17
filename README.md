@@ -14,7 +14,7 @@ c+h and interactions are welcome. it's okay to sit next to me even if we haven't
 I can't always view your cards due to their unavailability in my country. My vpn has been working like shit lately, so if I come to you, but I'm on your dni or something, gently purr at me, I'm not doing this on purpose    
 I subscribe on people randomly, mostly collecting their profiles like cool rocks, so don't mind me
 
-I don't like describing my interests outside of a dialogue much and believe in chance encounters, so you'd better ask me personally if we have something else in common (don't (or do) worry though, most likely I'll interrogate you myself if we chat)  
+I don't really like describing my interests outside of a dialogue and believe in chance meetings, so you'd better ask me personally if we have anything in common (although I'll probably interrogate you myself if we chat)  
 Most of them are typology, old games and movies. Less often I draw or make an intelligent look by watching or reading super smart niche things on random themes. I'm kind of a talker *and* listener who likes people with special or weird interests, so come say hiii 
 
 **current fandoms:**
@@ -23,7 +23,7 @@ disco elysium, idv, deltarune, trigun, postal, fear and hunger, dmc, breaking ba
 [movies](https://boxd.it/81CFL); cute space for a spotify link
 
 
-I'm into all kinds of doomed toxic ~yaoi~ things, blood and meat, but only in terms of fiction. I love you, all humans and inhumans, and have nothing against the differences, but if you're seeing my open manner as arrogant or drastic, then uh bye  
+I'm into all kinds of doomed toxic ~yaoi~ things, blood and meat, glitter and bows, but only in terms of fiction. I love you, all humans and inhumans, and have nothing against the differences, but if you're seeing my open manner and tastes as arrogant or drastic, then uh bye  
 
 
 **Dni:**
