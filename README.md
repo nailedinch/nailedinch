@@ -27,7 +27,7 @@ I'm into all kinds of doomed toxic ~yaoi~ things, horror and gore, glitter and b
 
 
 **Dni:**
-basic, antis, rp, systems, neopronouns users with no alt normative/-ish one, under 16
+basic, antis, rp, systems, neopronouns users with no alt normative/-ish one, under 15
 
 
 
