@@ -29,7 +29,7 @@ I'm into all kinds of doomed toxic ~yaoi~ things, horror and gore, glitter and b
 **Dni:**
 basic, antis, rp, systems, neopronouns users with no alt normative/-ish one, under 15
 
-
+I'd say don't copy or take inspo from my skins, but who cares. at least you'll never be uniiiiique
 
 I hide freely and don't care being hided, but know that my invisible ass can land on you at any moment. Sometimes I hide nearest people for 15 mins when there are too many dialog bubbles around
 
