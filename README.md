@@ -18,7 +18,7 @@ I don't really like describing my interests outside of a dialogue and believe in
 Most of them are typology, old games and movies. Less often I draw or make an intelligent look by watching or reading super smart niche things on random themes. I'm kind of a talker *and* listener who likes people with special or weird interests, so come say hiii 
 
 **current fandoms:**
-disco elysium, idv, deltarune, trigun, postal, fear and hunger, dmc, breaking bad... not to mention great plans and unfinished ones
+disco elysium, idv, deltarune, ultrakill, trigun, postal, fear and hunger, dmc...
 
 [movies](https://boxd.it/81CFL); cute space for a spotify link; aand for sp
 
