@@ -1,7 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=nailedinch)
-
-![IMG_20250818_035247](https://github.com/user-attachments/assets/dce276ad-c08e-4c32-937e-02adc043516a)
-
+![](https://cdn.discordapp.com/attachments/1118672953211629640/1410278306909261874/0ae97ebc5fa8cd13157eabd1d94f3998.png?ex=68b06f86&is=68af1e06&hm=2dcc6c47bee3f313b7f83ba60f4048c1ec4ae5bac9b9539627d9844a264e0f73&)
 
 ***Larcis, 17, [any prns](https://pronouns.cc/@hyperlinkblocked)***
 
@@ -27,7 +25,7 @@ I'm into all kinds of doomed toxic ~yaoi~ things, horror and gore, glitter and b
 
 
 **Dni:**
-basic, antis, rp, systems, neopronouns users with no alt normative/-ish one, under 15
+basic, antis, rp, systems, neopronouns users with no alt normative/-ish one, under 16
 
 I'd say don't copy or take inspo from my skins, but who cares. at least you'll never be uniiiiique
 
