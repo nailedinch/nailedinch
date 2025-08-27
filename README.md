@@ -11,7 +11,7 @@ c+h and interactions are welcome. sleeping=offtab. it's okay to sit next to me e
 
 
 I can't always view your cards due to their unavailability in my country. My vpn has been working like shit lately, so if I come to you, but I'm on your dni or something, gently purr at me, I'm not doing this on purpose    
-I follow friends or people with nice skins and profiles. You're my cool rocks collection, so don't mind me  
+I follow friends and people with nice skins or profiles. You're my cool rocks collection, so don't mind me  
 
 I don't really like describing my interests outside of a dialogue and believe in chance meetings, so you'd better ask me personally if we have anything in common (although I'll probably interrogate you myself or will give up ona day and make a page for it)  
 Most of them are typology, old games and movies. Less often I draw or make an intelligent look by reading super smart niche things. I'm kind of a talker *and* listener who likes people with special or weird interests, so come say hiii 
@@ -22,7 +22,7 @@ disco elysium, idv, deltarune, ultrakill, trigun, postal, fear and hunger, dmc..
 [movies](https://boxd.it/81CFL); cute space for a spotify link; aand for sp
 
 
-I'm into all kinds of doomed toxic ~yaoi~ things, horror and gore, glitter and bows, but only in terms of fiction. I love you, all humans and inhumans, and have nothing against the differences, but if you're seeing my open manner and tastes as arrogant or drastic, then uh bye  
+I'm into all kinds of doomed toxic ~yaoi~ things, horror and gore, glitter and bows, but only in terms of fiction. I love you, humans and inhumans, just noting it.
 
 
 **Dni:**
