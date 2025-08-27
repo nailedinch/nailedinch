@@ -5,7 +5,8 @@
 ***Larcis, 17, [any prns](https://pronouns.cc/@hyperlinkblocked)***
 
 rus/self taught eng.
-c+h and interactions are welcome. sleeping=offtab. it's okay to sit next to me even if we haven't talked   
+c+h and interactions are welcome.  sleeping=offtab.  
+it's okay to sit next to me even if we haven't talked   
 
 ![tumblr_8d3248be64c54838a36ed0913669d623_5726ae61_400](https://github.com/user-attachments/assets/8edafce4-18e7-4a70-9c72-e51b608661ec)
 
@@ -19,10 +20,10 @@ Most of them are typology, old games and movies. Less often I draw or make an in
 **current fandoms:**
 disco elysium, idv, deltarune, ultrakill, trigun, postal, fear and hunger, dmc...
 
-[movies](https://boxd.it/81CFL); cute space for a spotify link; aand for sp
+[movies](https://boxd.it/81CFL); cute space for a spotify link; and for sp
 
 
-I'm into all kinds of doomed toxic ~yaoi~ things, horror and gore, glitter and bows, but only in terms of fiction. I love you, humans and inhumans, just noting it.
+I'm into all kinds of doomed toxic ~yaoi~ things, horror and gore, glitter and bows, but only in terms of fiction. Ily, all humans and inhumans, I just like when it known in advance
 
 
 **Dni:**
