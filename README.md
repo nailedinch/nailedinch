@@ -2,7 +2,7 @@
 
 ![](https://cdn.discordapp.com/attachments/1118672953211629640/1410278306909261874/0ae97ebc5fa8cd13157eabd1d94f3998.png?ex=68b06f86&is=68af1e06&hm=2dcc6c47bee3f313b7f83ba60f4048c1ec4ae5bac9b9539627d9844a264e0f73&)
 
-***Larcis, 17, [any prns](https://pronouns.cc/@hyperlinkblocked)***
+***Larcis, 17, [she/they](https://pronouns.cc/@hyperlinkblocked)***
 
 rus/self taught eng.
 c+h and interactions are welcome.  sleeping=offtab.  
