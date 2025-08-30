@@ -11,11 +11,10 @@ it's okay to sit next to me even if we haven't talked
 ![tumblr_8d3248be64c54838a36ed0913669d623_5726ae61_400](https://github.com/user-attachments/assets/8edafce4-18e7-4a70-9c72-e51b608661ec)
 
 
-I can't always view your cards due to their unavailability in my country. My vpn has been working like shit lately, so if I come to you, but I'm on your dni or something, gently purr at me, I'm not doing this on purpose    
+I can't always read your cards due to their unavailability in my country. My vpn has been working like shit lately, so if I come to you, but I'm on your dni or something, gently purr at me, I'm not doing this on purpose    
 I follow friends and people with nice skins or profiles. You're my cool rocks collection, so don't mind me  
 
-I don't really like describing my interests outside of a dialogue and believe in chance meetings, so you'd better ask me personally if we have anything in common (although I'll probably interrogate you myself or will give up ona day and make a page for it)  
-Most of them are typology, old games and movies. Less often I draw or make an intelligent look by reading super smart niche things. I'm kind of a talker *and* listener who likes people with special or weird interests, so come say hiii 
+Most of my interests are typology, old games and movies. Less often I draw or make an intelligent look by reading super smart niche things. I'm kind of a talker *and* listener who likes people with special or weird interests, so come say hiii
 
 **current fandoms:**
 disco elysium, idv, deltarune, ultrakill, trigun, postal, fear and hunger, dmc...
@@ -27,7 +26,7 @@ I'm into all kinds of doomed toxic ~yaoi~ things, horror and gore, glitter and b
 
 
 **Dni:**
-basic, antis, rp, systems, neopronouns users with no alt normative/-ish one, under 16
+basic, antis, rp, systems, under 16. otherwise get freaky♥️
 
 I'd say don't copy or take inspo from my skins, but who cares. at least you'll never be uniiiiique
 
