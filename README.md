@@ -26,7 +26,7 @@ I'm into all kinds of doomed toxic ~yaoi~ things, horror and gore, glitter and b
 
 
 **Dni:**
-basic, antis, rp, systems, under 16. otherwise get freaky♥️
+basic, rp, systems, under 16. otherwise get freaky♥️
 
 I'd say don't copy or take inspo from my skins, but who cares. at least you'll never be uniiiiique
 
