@@ -40,6 +40,6 @@ I hide freely and don't care being hided, but know that my invisible ass can lan
 *tt: @nailedinch*    
 
 half-dead vpn❤︎ so rarely use these↓  
-*twt: @nailedinch*                        
+*twt: @nailedinch* i don't post                       
 *ds: whitecocoaa*  
 
