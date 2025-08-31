@@ -5,7 +5,7 @@
 ***Larcis/Lars or Nin for those who have met me before, 17, [she](https://pronouns.cc/@hyperlinkblocked)***
 
 rus/self taught eng.
-c+h and interactions are always welcome.  
+c+h and interactions are always welcome  
 it's okay to sit next to me even if we haven't talked   
 
 ![tumblr_8d3248be64c54838a36ed0913669d623_5726ae61_400](https://github.com/user-attachments/assets/8edafce4-18e7-4a70-9c72-e51b608661ec)
