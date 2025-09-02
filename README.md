@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=nailedinch)  
 
-![](https://cdn.discordapp.com/attachments/1412431112952741939/1412431964283076608/2.png?ex=68b84546&is=68b6f3c6&hm=78cce38009fe1d909bda043941d4b93877322cacba47ebfa0f4bdcb25c64e1aa&)
+![](https://cdn.discordapp.com/attachments/1412431112952741939/1412432737868185742/5.png?ex=68b845fe&is=68b6f47e&hm=91489694ff857a1b638e2128f8af833d4e0f65b5e0dc5a9debaafee298340255&)
 
 ***Larcis/Lars or Nin for those who have met me before, 17***
 
