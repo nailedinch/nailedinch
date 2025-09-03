@@ -2,7 +2,7 @@
 
 ![](https://cdn.discordapp.com/attachments/1412431112952741939/1412432737868185742/5.png?ex=68b845fe&is=68b6f47e&hm=91489694ff857a1b638e2128f8af833d4e0f65b5e0dc5a9debaafee298340255&)
 
-***Larcis/Lars or Nin for those who have met me before, 17***
+***Larcis/Lars (Ларцис/Ларс) or Nin for those who have met me before, 17***
 
 rus/self taught eng.
 c+h and interactions are always welcome  
