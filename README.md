@@ -15,7 +15,7 @@ Most of my interests are typology, old games and movies. Less often I draw or ma
 **current fandoms:**
 disco elysium, idv, deltarune, ultrakill, trigun, postal, fear and hunger, dmc...
 
-[movies](https://boxd.it/81CFL); cute space for a spotify link; for a future sp
+[movies](https://boxd.it/81CFL); cute space for a spotify link; and for a future sp
 
 
 I'm into all kinds of doomed toxic ~yaoiyuri~ things, horror and gore, glitter and bows, but only in terms of fiction. Ily, all humans and inhumans, I just like when it known in advance
