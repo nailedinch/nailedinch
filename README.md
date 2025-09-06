@@ -1,10 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=nailedinch)  
 
-![Spamton_overworld_dance](https://github.com/user-attachments/assets/741c1651-6fdc-4f53-be0e-44f421aea308) ![Spamton_overworld_dance](https://github.com/user-attachments/assets/741c1651-6fdc-4f53-be0e-44f421aea308) ![Spamton_overworld_dance](https://github.com/user-attachments/assets/741c1651-6fdc-4f53-be0e-44f421aea308) ![Spamton_overworld_dance](https://github.com/user-attachments/assets/741c1651-6fdc-4f53-be0e-44f421aea308) ![Spamton_overworld_dance](https://github.com/user-attachments/assets/741c1651-6fdc-4f53-be0e-44f421aea308) ![Spamton_overworld_dance](https://github.com/user-attachments/assets/741c1651-6fdc-4f53-be0e-44f421aea308)
-
-
-![](https://cdn.discordapp.com/attachments/1412431112952741939/1412432737868185742/5.png?ex=68b845fe&is=68b6f47e&hm=91489694ff857a1b638e2128f8af833d4e0f65b5e0dc5a9debaafee298340255&)
-
 ***Larcis/Lars (Ларцис/Ларц) or you can see people calling me Nin, 17***
 
 rus/self taught eng, so I probably will make mistakes  
@@ -37,10 +32,6 @@ Sometimes I hide or mute nearest people for 15 mins when there are too many dial
 <img src="https://64.media.tumblr.com/97d253a485fcef4706e21d1800e08221/79a6652a6d7925e6-c3/s100x200/f8b43eee8e87a7544215c519238d32e8f7c7b7dc.gifv"/>
 </p>
  
-*tg: @nailedinch*            
-*tt: @nailedinch*    
-
-i rarely use these↓  
-*twt: @nailedinch* i don't post                       
+*tg, tt, twt: @nailedinch*                                
 *dc: whitecocoaa*  
 
