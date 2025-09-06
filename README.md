@@ -1,5 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=nailedinch)  
 
+![Spamton_overworld_dance](https://github.com/user-attachments/assets/741c1651-6fdc-4f53-be0e-44f421aea308) ![Spamton_overworld_dance](https://github.com/user-attachments/assets/741c1651-6fdc-4f53-be0e-44f421aea308) ![Spamton_overworld_dance](https://github.com/user-attachments/assets/741c1651-6fdc-4f53-be0e-44f421aea308) ![Spamton_overworld_dance](https://github.com/user-attachments/assets/741c1651-6fdc-4f53-be0e-44f421aea308) ![Spamton_overworld_dance](https://github.com/user-attachments/assets/741c1651-6fdc-4f53-be0e-44f421aea308)
+
+
 ![](https://cdn.discordapp.com/attachments/1412431112952741939/1412432737868185742/5.png?ex=68b845fe&is=68b6f47e&hm=91489694ff857a1b638e2128f8af833d4e0f65b5e0dc5a9debaafee298340255&)
 
 ***Larcis/Lars (Ларцис/Ларц) or you can see people calling me Nin, 17***
