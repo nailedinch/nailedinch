@@ -11,7 +11,7 @@ it's okay to sit next to me even if we haven't talked. i liiike cuddling or cove
 ![tumblr_8d3248be64c54838a36ed0913669d623_5726ae61_400](https://github.com/user-attachments/assets/8edafce4-18e7-4a70-9c72-e51b608661ec)
 
 
-I can't always read all your pages due to their unavailability in my country. So if I come to you, but I'm on your dni or something, gently purr at me, I'm not doing this on purpose  
+I can't always read all your pages due to their unavailability in my country. My vpn has been working like shit lately.  
 I follow friends and people with nice skins or profiles. My cool rocks collection  
 
 Most of my interests are typology, old games and movies. Less often I draw or make an intelligent look by reading super smart niche things. I'm too lazy to list it properly
