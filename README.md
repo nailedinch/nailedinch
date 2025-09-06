@@ -3,7 +3,6 @@
 ***Larcis/Lars (Ларцис/Ларц) or you can see people calling me Nin, 17***
 
 rus/self taught eng, so I probably will make mistakes  
-*(снг на иностранных серверах, поздоровайтесь пожалуйста, мне знойно одиноко на пару с переводчиком)*
   
 it's okay to sit next to me even if we haven't talked. i liiike cuddling or covering people   
 
