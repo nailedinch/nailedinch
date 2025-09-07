@@ -22,7 +22,7 @@ I'm into all kinds of doomed toxic ~yaoiyuri~ things, horror and gore, glitter a
 
 
 **Dni:**
-basic, systems, under 16. otherwise get freaky💜
+basic, systems, under 15. otherwise get freaky💜
 
 Sometimes I hide or mute nearest people for 15 mins when there are too many dialog bubbles around. So know that my invisible ass can land on you at any moment
  
