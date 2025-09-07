@@ -13,6 +13,10 @@ disco elysium, idv, deltarune, ultrakill, trigun, postal, fear and hunger, dmc..
 **Dni:**
 basic, systems, under 15. otherwise get freaky💜  
 Sometimes I hide or mute nearest people for 15 mins when there are too many dialog bubbles around. So know that my invisible ass can land on you at any moment
+
+![photo_2025-09-07_19-27-17](https://github.com/user-attachments/assets/fc9ec260-20cf-4171-b8a5-126446a26cdf)
+
+
  
 *tg, tt, twt: @nailedinch*                                
 *dc: whitecocoaa*  
