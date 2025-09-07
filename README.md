@@ -4,8 +4,6 @@
 
 rus/self taught eng, so there's no such thing as grammar to me  
 sit with me even if we haven't talked, permanent c+h   
-
-![tumblr_8d3248be64c54838a36ed0913669d623_5726ae61_400](https://github.com/user-attachments/assets/8edafce4-18e7-4a70-9c72-e51b608661ec)
    
 Most of my interests are typology, old games and movies. Less often I draw or make an intelligent look by reading super smart niche things. I'm too lazy to list it properly
 
