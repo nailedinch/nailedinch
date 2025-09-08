@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=nailedinch)  
 ***Larcis/Lars (Ларцис/Ларц), or you can see people calling me Nin, 17***  
 rus/self taught eng, so there's no such thing as grammar to me  
-sit with me even if we haven't talked, permanent c+h     
+sit with me even if we haven't talked, i have permanent c+h and i looove covering people     
 
 Most of my interests are typology, old games and movies. Less often I draw or make an intelligent look by reading super smart niche things. I'm too lazy to list it properly  
 I'm into all kinds of doomed toxic ~yaoiyuri~ things, horror and gore, glitter and bows, but only in terms of fiction. Ily, all humans and inhumans, I just like when it known in advance
