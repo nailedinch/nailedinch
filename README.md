@@ -11,7 +11,8 @@ disco elysium, idv, deltarune, ultrakill, trigun, postal, fear and hunger, dmc..
 [movies](https://boxd.it/81CFL); spotify; whiteboard
 
 **Dni:**
-basic, systems, under 15. otherwise get freaky💝  
+basic, cancel culture, systems, under 15. otherwise get freaky💝 
+
 Sometimes I hide or mute nearest people for 15 mins when there are too many dialog bubbles around. So know that my invisible ass can land on you at any moment
 
 ![photo_2025-09-07_19-27-17 (2)](https://github.com/user-attachments/assets/17ab5f8e-549c-4c58-93e7-b23f0b475d79)
