@@ -8,7 +8,7 @@ I'm into all kinds of doomed toxic ~yaoiyuri~ things, horror and gore, glitter a
 
 **current fandoms:**
 disco elysium, idv, deltarune, ultrakill, trigun, postal, fear and hunger, dmc...  
-[movies](https://boxd.it/81CFL); spotify; steam; whiteboard
+sp; [movies](https://boxd.it/81CFL); spotify; steam; whiteboard
 
 **Dni:**
 basic, cancel culture, systems, under 15. otherwise get freaky💝 
