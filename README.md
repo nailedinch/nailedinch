@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=nailedinch&color=d88da8)  
+![](https://komarev.com/ghpvc/?username=nailedinch&color=e069c4)  
 ***Larcis/Lars (Ларцис/Ларц), or you can see people calling me Nin, 17***  
 *rus/self taught eng, so there's no such thing as grammar to me.*   
 *sit with me even if we haven't talked, I'm always c+h and i liiike covering people*      
