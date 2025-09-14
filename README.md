@@ -1,5 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=nailedinch&color=d476be)  
-***Larcis/Lars (Ларцис/Ларц), or you can see people calling me Nin, 17***  
+***Larcis/Lars (Ларцис/Ларц), rarely called Nin***  
 *rus/self taught eng, so there's no such thing as grammar to me.*   
 *sit with me even if we haven't talked, I'm always c+h and i liiike covering people*      
 
