@@ -1,9 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=nailedinch&color=bd5d37)  
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/b94ae928-499e-4b64-8285-04f472d678c6" />
+  <img src="https://github.com/user-attachments/assets/42574536-feed-4362-bcdc-2999e9e93a4c" />
 </p>
-
 
 ***Larcis/Lars (Ларцис/Ларц), rarely called Nin***  
 *rus/self taught eng, so there's no such thing as grammar to me*   
