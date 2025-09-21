@@ -1,7 +1,7 @@
-![](https://komarev.com/ghpvc/?username=nailedinch&color=73b74f)  
+![](https://komarev.com/ghpvc/?username=nailedinch&color=bd5d37)  
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/2c9309e9-a52d-42f3-b914-fc839f0ce157" />
+  <img src="https://github.com/user-attachments/assets/b94ae928-499e-4b64-8285-04f472d678c6" />
 </p>
 
 
