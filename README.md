@@ -4,7 +4,7 @@
 *rus/self taught eng, so there's no such thing as grammar to me*   
 *sit with me even if we haven't talked, I'm always c+h and liiike covering people*      
 
-I'm into all kinds of doomed toxic ~yaoiyuri~ things, horror and gore, glitter and bows, but only in terms of fiction. Ily, all humans and inhumans, I just like when it known in advance
+I'm into all kinds of doomed toxic ~yaoiyuri~ things, horror and gore, glitter and bows, but only in terms of fiction. Ily, all humans and inhumans, just like when it known in advance
 
 **current fandoms:**
 disco elysium, idv, deltarune, ultrakill, trigun, postal, fear and hunger, dmc...  
