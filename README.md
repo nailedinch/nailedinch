@@ -4,12 +4,11 @@
 *rus/self taught eng, so there's no such thing as grammar to me*   
 *sit with me even if we haven't talked, I'm always c+h and liiike covering people*      
 
-Most of my interests are typology, old games and movies. Less often I draw or make an intelligent look by reading super smart niche things. I'm too lazy to list it properly  
 I'm into all kinds of doomed toxic ~yaoiyuri~ things, horror and gore, glitter and bows, but only in terms of fiction. Ily, all humans and inhumans, I just like when it known in advance
 
 **current fandoms:**
 disco elysium, idv, deltarune, ultrakill, trigun, postal, fear and hunger, dmc...  
-sp; [movies](https://boxd.it/81CFL); spotify; steam; whiteboard
+[movies](https://boxd.it/81CFL); spotify; steam; whiteboard
 
 **Dni:**
 basic, cancel culture, anyone who thinks that fiction effects reality, systems, serious rp, under 15. otherwise get freaky💝 
