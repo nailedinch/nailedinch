@@ -17,6 +17,5 @@ Sometimes I hide or mute random people, so know that my invisible ass can land a
 
 ![photo_2025-09-07_19-27-17 (2)](https://github.com/user-attachments/assets/17ab5f8e-549c-4c58-93e7-b23f0b475d79)
 
-мой тгк кстати, я рисую - дюймогвоздь (@hestitationmarks)  
  *tg, tt, twt: @nailedinch*                                
 *dc: whitecocoaa*  
