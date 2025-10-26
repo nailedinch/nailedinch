@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=nailedinch&color=e382c5)  
 
-***Larcis/Lars (Ларцис/Ларц), rarely called Nin***  
+***Larcis/Lars, rarely called Nin***  
 *rus/self taught eng, so there's no such thing as grammar to me*   
 *sit with me even if we haven't talked, I'm always c+h and liiike covering people*      
 
