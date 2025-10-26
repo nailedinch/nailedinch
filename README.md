@@ -5,7 +5,7 @@
 *sit with me even if we haven't talked, I'm always c+h and liiike covering people*      
 
 **current fandoms:**
-disco elysium, idv, deltarune, ultrakill, trigun, postal, fear and hunger, dmc...  
+disco elysium, idv, deltarune, ultrakill, postal, fear and hunger, dmc...  
 [movies](https://boxd.it/81CFL); spotify
 
 I'm into all kinds of doomed toxic ~yaoiyuri~ things, horror and gore, glitter and bows, but only in terms of fiction. Ily, all humans and inhumans, just like when it known in advance
