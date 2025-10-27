@@ -2,13 +2,13 @@
 
 ***Larcis/Ларц***  
 *rus/self taught eng, so there's no such thing as grammar to me*   
-*sit with me even if we haven't talked, I'm always c+h and liiike covering people*      
+*sit with me even if we haven't talked, I'm always c+h and int and whatever and i liiike covering people*      
 
 **current fandoms:**
 disco elysium, idv, deltarune, ultrakill, postal, fear and hunger, dmc...  
 [movies](https://boxd.it/81CFL); spotify
 
-I'm into all kinds of doomed toxic ~yaoiyuri~ things, horror and gore, glitter and bows, but only in terms of fiction. Ily, all humans and inhumans, just like when it known in advance
+I'm into all kinds of doomed toxic ~yaoiyuri~ things, horror and gore, glitter and bows, but only in terms of fiction. Ily, all humans and inhumans, just like when it known in advance. multishipper btw
 
 **Dni:**
 basic, cancel culture, anyone who thinks that fiction effects reality, under 14. otherwise get freaky💝 
