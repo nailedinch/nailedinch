@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=nailedinch&color=e382c5)  
+![](https://komarev.com/ghpvc/?username=nailedinch&color=d83d3d)  
 
 ***Larcis/Ларц***  
 *rus/self taught eng, so there's no such thing as grammar to me*   
