@@ -8,7 +8,7 @@
 [movies idk](https://boxd.it/81CFL); spotify
 
 **Dni:**
-basic, cancel culture, anyone who thinks that fiction effects reality, under 14. otherwise get freaky💝 
+basic, under 16
 
 Sometimes I hide or mute random people, so know that my invisible ass can land at you at any moment
 
