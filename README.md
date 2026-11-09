@@ -3,12 +3,9 @@
 ***Mansura, 18, cis***  
 *rus/self taught eng, so there's no such thing as grammar to me. correct me if you wish, I promise I won't cry*  
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=56khqlkuie6kps45tycv9vdkc&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
-
 [movies idk](https://boxd.it/81CFL); spotify
 
-**Dni:**
-basic, under 16
+no dni, but mind our age differences. as for all "problematic" things, i don't really care if you're smart enough to separate fiction from reality. I'm not interested in this useless internet discourse and have a third opinion on it 
 
 Sometimes I hide or mute random people, so know that my invisible ass can land at you at any moment
 
