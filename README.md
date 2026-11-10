@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=nailedinch&color=d83d3d)  
 
-***Mansura, 18, she***  
+***Mansura, 18, [she](https://pronouns.cc/@n11n)***  
 *rus/self taught eng, so there's no such thing as grammar to me. correct me if you wish, I promise I won't cry*  
 
 [movies idk](https://boxd.it/81CFL); spotify
