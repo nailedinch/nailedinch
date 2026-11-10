@@ -3,7 +3,7 @@
 ***Mansura, 18, [she](https://pronouns.cc/@msra)***  
 *rus/mediocre eng, so there's no such thing as grammar to me. correct me if you wish, I promise I won't cry*  
 
-[movies idk](https://boxd.it/81CFL); spotify
+[movies](https://boxd.it/81CFL); spotify
 
 no dni, but mind our age differences. as for all "problematic" things, i don't really care if you're smart enough to separate fiction from reality. I'm not interested in this useless internet discourse and have a third opinion on it 
 
